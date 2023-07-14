@@ -10,7 +10,7 @@
 
 - 💬 Ask me about **react**
 
-- 📫 How to reach me **rchouhan2472001@gmail.com**
+- 📫 How to reach me **raj.chouhan.2470@gmail.com**
 
 - 📄 Know about my experiences [https://www.mycvcreator.com/site/tsolutionorg](https://www.mycvcreator.com/site/tsolutionorg)
 
