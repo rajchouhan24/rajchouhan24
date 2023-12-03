@@ -8,7 +8,7 @@
 
 - 📫 How to reach me **raj.chouhan.2470@gmail.com**
 
-- 📄 Know about my experiences [https://tiny-praline-60cb79.netlify.app](https://tiny-praline-60cb79.netlify.app)
+- 📄 Know about my experiences [Profile](https://tiny-praline-60cb79.netlify.app)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
